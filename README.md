@@ -1,1 +1,1 @@
-i have schizoid personality disorder and autism, i feel like those are the things i am going to specify since it will cause me to have troubles communicating
+i have schizoid personality disorder and autism, i feel like those are the things i need to specify since it will cause me to have troubles communicating
